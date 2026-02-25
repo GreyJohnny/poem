@@ -1,5 +1,4 @@
-# 🕊️ 温良 (Gentleness)
-
+# 🕊️ 温良
 ---
 
 
@@ -42,7 +41,7 @@
 
 ---
 
-# 🕊️ Gentleness / Tame
+# 🕊️ Gentle and Docile
 
 ---
 
